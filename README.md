@@ -1,5 +1,4 @@
 - 👋 Hi,
-- 👀 I’m interested in coding
 - 💞️ I'd love to collab with anyone if you please
 
 
